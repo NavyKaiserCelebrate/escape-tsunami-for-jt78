@@ -1,4 +1,4 @@
-
+Download updated Scripts for escape tsunami for brainrots for escape tsunami for brainrots, the best script available, featuring teleport and speed. This powerful tool ensures you
 
 
 
